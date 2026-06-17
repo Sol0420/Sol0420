@@ -1,4 +1,4 @@
-# Hi, I'm Sol, of course, tha's my nickname. 👋
+# Hi, I'm Sol, of course, that's my nickname. 👋
 
 ## Senior Full-Stack Engineer | AI/ML Engineer
 
