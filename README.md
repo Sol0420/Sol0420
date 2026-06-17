@@ -1,4 +1,4 @@
-# Hi, I'm Sol0420 👋
+# Hi, I'm Sol, of course, tha's my nickname. 👋
 
 ## Senior Full-Stack Engineer | AI/ML Engineer
 
